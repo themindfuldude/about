@@ -6,9 +6,8 @@
 - 😄 Pronouns: ...
 - ✨ Fun fact: ...
 
-https://www.emojisearch.app/
-
 # EMOJIS
+https://www.emojisearch.app/
 🦙
 Llama
 Ⓜ
@@ -129,7 +128,6 @@ Man police officer medium light skin tone
 Family man man girl boy
 🤼
 People wrestling
-
 🛐
 Place of worship
 🪧
